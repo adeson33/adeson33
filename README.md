@@ -2,7 +2,7 @@
 - 👀 I’m interested in swimming and music
 - 🌱 I’m currently learning automatic programming
 - 💞️ I’m looking to collaborate on NLP
-- 📫 How to reach me 1262789229@qq.com
+- 📫 How to reach me a2786454057@gmail.com
 
 <!---
 adeson33/adeson33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
